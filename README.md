@@ -6,8 +6,8 @@ The DIPI group is at the **Department of Sciences and Methods for Engineering (D
 
 📍 **Department of Sciences and Methods for Engineering**
 University of Modena and Reggio Emilia
-via Giovanni Amendola 2,
-42122 Reggio Emilia (Italy)
+Via Giovanni Amendola, 41-43, 42122 
+Reggio Emilia RE, Italy
 
 ## How to reach us ?
 
